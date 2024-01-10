@@ -1,2 +1,0 @@
-# rahmanurfadillah.github.io
-uts
